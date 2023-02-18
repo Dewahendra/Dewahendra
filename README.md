@@ -8,4 +8,4 @@ Perkenalkan nama saya **Dewa Ketut Mahendra Putra**
 
 🔭 Saya juga seorang Freelancer T-shirt Design dan kamu bisa mengunjungi store saya [TeePublic](https://www.teepublic.com/user/skywiz?utm_source=designer&utm_medium=social&utm_campaign=skywiz)
 
-😎 Jika kamu tertarik untuk berkenalan denganku, silahkan ikuti akun [istagram](https://www.instagram.com/dw.mhdr/)ku ya.
+😎 Jika kamu tertarik untuk berkenalan denganku, silahkan ikuti akun [Instagram](https://www.instagram.com/dw.mhdr/)ku ya.
